@@ -24,7 +24,7 @@ I am also an open-source enthusiast and maintainer. I have learned a lot from th
 - 💬 Ask me about Code, food, Space crafts, and life.
 - 📫 How to reach me: dantechdevs@gmail.com
 - 📫 How to reach me: daniel@dantechdevs.com
-- WhatsApp +254712328150
+- WhatsApp +254719491768
 
 <br>
 <img src="https://media.giphy.com/media/xT9IgG50Fb7Mi0prBC/giphy.gif" width="300">
